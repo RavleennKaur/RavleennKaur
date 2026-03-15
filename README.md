@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **anything 🧐 !**
 
-- 📫 How to reach me **ravleen1015@gmail.com**
+- 📫 How to reach me **ravleenkj@gmail.com**
 
 
 
